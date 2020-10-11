@@ -8,6 +8,8 @@ DAY6 is a K-rock band under JYPe that consists of five members (from left to rig
 
 DAY6 debuted on September 07, 2015 with their first mini album 'The Day'
 
+.
+
 ![Test Image 3](https://kgasa.com/wp-content/uploads/2020/08/The-Book-of-Us-Gluon-Nothing-can-tear-us-apart.jpg)
 
 Their most recent comeback was released by their new subunit Even of Day: 'The Book of Us: Gluon - Nothing Can Tear Us Apart'. This subunit consists of Dowoon, YoungK, and Wonpil.
@@ -16,10 +18,8 @@ They even had the Every DAY6 Project in 2017 where the band released two new tra
 
 You can view their full discography here: https://day6.jype.com/Default/DiscographyList?PgIndex=1&AmSeq=1
 
-## Members
 
-
-### Recent Activity
+## Recent Activity
 As of October 2020, DAY6 is currently on a break. However, they are all being active individually, and you can check that out here: 
 
 DAY6 Official Website: https://day6.jype.com/

@@ -16,13 +16,16 @@ Their most recent comeback was released by their new subunit Even of Day: 'The B
 
 They even had the Every DAY6 Project in 2017 where the band released two new tracks every month. RESPEKT!!
 
-You can view their full discography here: https://day6.jype.com/Default/DiscographyList?PgIndex=1&AmSeq=1
+You can view their full discography here: <https://day6.jype.com/Default/DiscographyList?PgIndex=1&AmSeq=1>
 
 ## Recent Activity
 As of October 2020, DAY6 is currently on a break. However, they are all being active individually, and you can check that out here: 
 
-DAY6 Official Website: https://day6.jype.com/
+DAY6 Official Website: 
+<https://day6.jype.com/>
 
-DAY6 Official Youtube Channel: https://www.youtube.com/channel/UCp-pqXsizklX3ZHvLxXyhxw
+DAY6 Official Youtube Channel: 
+<https://www.youtube.com/channel/UCp-pqXsizklX3ZHvLxXyhxw>
 
-eaJ (Jae's Youtube Channel): https://www.youtube.com/channel/UCrOUYIN9rbYaWFs68vAtaZA
+eaJ (Jae's Youtube Channel): 
+<https://www.youtube.com/channel/UCrOUYIN9rbYaWFs68vAtaZA>

@@ -18,7 +18,6 @@ They even had the Every DAY6 Project in 2017 where the band released two new tra
 
 You can view their full discography here: https://day6.jype.com/Default/DiscographyList?PgIndex=1&AmSeq=1
 
-
 ## Recent Activity
 As of October 2020, DAY6 is currently on a break. However, they are all being active individually, and you can check that out here: 
 

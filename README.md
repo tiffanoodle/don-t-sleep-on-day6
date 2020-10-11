@@ -1,4 +1,4 @@
-# DAY6
+# Welcome, My Days!
 Who is DAY6?
 
 DAY6 is a K-rock band that consists of five members: Sungjin, YoungK, Wonpil, Dowoon, and Jae.

@@ -22,10 +22,13 @@ You can view their full discography here: <https://day6.jype.com/Default/Discogr
 As of October 2020, DAY6 is currently on a break. However, they are all being active individually, and you can check that out here: 
 
 DAY6 Official Website: 
+
 <https://day6.jype.com/>
 
 DAY6 Official Youtube Channel: 
+
 <https://www.youtube.com/channel/UCp-pqXsizklX3ZHvLxXyhxw>
 
 eaJ (Jae's Youtube Channel): 
+
 <https://www.youtube.com/channel/UCrOUYIN9rbYaWFs68vAtaZA>
